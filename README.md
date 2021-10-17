@@ -1,0 +1,5 @@
+- 👋 Hi, I’m @Layeph
+- 👀 I’m interested in games of all kinds
+- 🌱 I’m currently learning to mod minecraft
+- 💞️ I’m looking to collaborate on nothing
+- 📫 How to reach me discord, Layeph#8524
